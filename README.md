@@ -1,1 +1,1 @@
-# AMB82-Mini-Prjiects
+# AMB82-Mini-Projects
